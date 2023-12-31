@@ -15,6 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-See following for more details abaout me:
+See following for more details about me:
+
 https://www.linkedin.com/in/ludger-pottmeier-612298189
+
 https://kernwestfale.blogspot.com/
